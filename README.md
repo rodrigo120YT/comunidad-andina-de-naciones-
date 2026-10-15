@@ -1,2 +1,2 @@
 # comunidad-andina-de-naciones-
-ñami
+sossa-cami-lahis
